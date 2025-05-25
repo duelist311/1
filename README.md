@@ -35,6 +35,8 @@ Welcome to the official GitHub repository for KMSPico and KMS Activator – the 
 
 > Ensure you have the latest version of the KMSPico or KMS Activator for optimal performance.
 
+KMSPico: Effortless Windows and Office activation without keys - Office in United States
+
 ---
 
 ## 💡 Benefits of Using KMSPico and KMS Activator
